@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @MMaithreyan
-🕴Student Of 🏢Karpagam College Engineering🏢-Coimbatore.
-    🎓Electronics and Communication.
+•👋 Hi, I’m @MMaithreyan.
 
-- 🌱 I’m also Student of Spotknack as a frontEnd Developer
+•🕴Student Of 🏢Karpagam College Engineering🏢-Coimbatore.
+
+•🎓Electronics and Communication Enginer.
+
+•🌱 I’m also Student of Spotknack as a frontEnd-Developer.
 
 
 
