@@ -1,5 +1,7 @@
 •👋 Hi, I’m @MMaithreyan.
 
+Intern @ Quantulum ventures
+
 •🕴Student Of 🏢Karpagam College Engineering🏢-Coimbatore.
 
 •🎓Electronics and Communication Enginer.
